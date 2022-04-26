@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 <!--events start -->
 
 
-### 我在[链滴](https://ld246.com)的 ⭐️ [个人主页](https://ld246.com/member/hito0512)
+### 我在[链滴](https://ld246.com)的[个人主页](https://ld246.com/member/hito0512)
