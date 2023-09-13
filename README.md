@@ -19,3 +19,4 @@ Here are some ideas to get you started:
 
 
 ### 我在[链滴](https://ld246.com)的[个人主页](https://ld246.com/member/hito0512)
+### 我的[hugging Face](https://huggingface.co/hito0512)
